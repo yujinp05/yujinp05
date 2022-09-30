@@ -1,4 +1,4 @@
-### 👋  Hi there! I'm a phd student in Ewha Womans Universuty..🚀
+### 👋  Hi there! I'm a phd student in Ewha Womans University..🚀
 
 📫 How to reach me: yujin.alex.p@google.com
 
